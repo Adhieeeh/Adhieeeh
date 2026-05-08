@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currently a first year B.Tech seeker.<br>i know programming languages like Python,C/C++,Ruby,Dart and web languages like HTML,CSS and JAVASCRIPT.<br>I'm looking to collaborate on my works and follow if they lilke it.<br>
+I'm currently a first year B.Tech seeker.<br>|Developer|.<br> <br>I'm looking to collaborate on my works and follow if they lilke it.<br>
 
 
 ## 🌐 Socials:
