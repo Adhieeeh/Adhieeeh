@@ -1,5 +1,7 @@
-# 💫 About Me:
-I'm currently a first year B.Tech seeker.<br>|Developer|.<br> <br>I'm looking to collaborate on my works and follow if they lilke it.<br>
+# 💫Hy I'm Adhithya S U 
+A first year B.Tech seeker.<br>|Developer|.<br>I love creating new things ⚡<br>
+
+Turning imagination into reality 🚀 <br>I'm looking to collaborate on my works and follow if they lilke it.<br>
 
 
 ## 🌐 Socials:
